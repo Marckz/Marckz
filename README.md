@@ -1,4 +1,4 @@
-## Olár, me chame de Marck e bora sorrir :) ☕
+## Olár, vai um ☕?
 
  <div>
    <a href="https://github.com/Marckz">
