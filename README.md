@@ -1,4 +1,4 @@
-# ☕ Opa, falae, eu sou Marck.
+# ☕ Opa, falae, sou Marck.
 
 ### 🚀 Desenvolvedor em Formação | Engenheiro de Software
 
